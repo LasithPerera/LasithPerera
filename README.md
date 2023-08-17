@@ -18,7 +18,7 @@
 
 - ⚡ Fun fact **I am funny**
 
-<img align="center" alt="Coding" width="180" src="https://i.pinimg.com/originals/ef/2d/b0/ef2db0885d94fd149a4b7914923bb2a3.gif">
+<img align="center" alt="Coding" width="220" src="https://i.pinimg.com/originals/ef/2d/b0/ef2db0885d94fd149a4b7914923bb2a3.gif">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
